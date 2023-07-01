@@ -1,2 +1,2 @@
 ### ☆ Ai Hoshino Supremacy ☆
-![](https://media.tenor.com/Qixy6rxsxxUAAAAC/hoshino-ai-oshi-no-ko.gif)
+![](https://media.tenor.com/iK9L3YOP8RYAAAAC/ai-ai-hoshino.gif)
