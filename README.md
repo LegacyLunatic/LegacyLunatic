@@ -1,2 +1,2 @@
-☆ Ai Hoshino Supremacy ☆
-![](https://tenor.com/view/hoshino-ai-oshi-no-ko-anime-tehe-tehepero-gif-4768312457987671829)
+### ☆ Ai Hoshino Supremacy ☆
+![](https://media.tenor.com/Qixy6rxsxxUAAAAC/hoshino-ai-oshi-no-ko.gif)
